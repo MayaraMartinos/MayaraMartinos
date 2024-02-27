@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Backend and security stuff.
 - 📫 How to reach me? Discord i'd guess. 
 - 😄 Pronouns: She/Her but also Ja/va (i'm jk pls).
-- ⚡ Fun fact: I can draw and speak some japanese. It's neat.
+- ⚡ Fun fact: I can draw and speak some japanese. It's neat. I'm also a bun mom, and i'm addicted to bunnies, talk to me about it and i'll not shush.
 
 <!---
 MayaraMartinos/MayaraMartinos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
